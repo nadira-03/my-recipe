@@ -7,14 +7,13 @@
 - Frozen vegetables
 - Garlic
 
-### Required
-
-### Optional
-
 ## Instructions
 
-- Season chicken breast to your liking.
+- Chop and season chicken breast to your liking.
 - Saute garlic in oil.
 - Pan fry chicken breast.
 - Add vegetables.
+- Add sauce of your liking to tortilla wraps.
+- Spoon chicken and veggie mixture onto the wrap.
+- Fold and enjoy!
 
