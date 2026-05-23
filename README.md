@@ -14,6 +14,7 @@
 ## Instructions
 
 - Season chicken breast to your liking.
+- Saute garlic in oil.
 - Pan fry chicken breast.
 - Add vegetables.
 
