@@ -12,3 +12,8 @@
 ### Optional
 
 ## Instructions
+
+- Season chicken breast to your liking.
+- Pan fry chicken breast.
+- Add vegetables.
+
