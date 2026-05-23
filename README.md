@@ -5,6 +5,7 @@
 - 2 tortilla wraps
 - Chicken breast
 - Frozen vegetables
+- Garlic
 
 ### Required
 
